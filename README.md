@@ -1,0 +1,1 @@
+# 15-501-introduction-to-financial-and-managerial-accounting-spring-2_4955ed16c33846138c68ddf9fe4ac235
